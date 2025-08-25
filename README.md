@@ -6,3 +6,9 @@ IF EXEC FOR WINDOWS 11 Home
 - INSTALL ONLY DRIVER
 
 HACKER GOOD BYE!
+
+password 1
+
+passed download 
+
+RECOMEND 2019 7-zip!
